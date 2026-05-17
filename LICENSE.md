@@ -1,10 +1,10 @@
-Elite NordVPN Plugin | otimização para streaming + troca de servidor é o melhor NordVPN plugin com otimização para streaming e troca de servidor. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/nordvpn-xm08/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
